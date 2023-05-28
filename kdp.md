@@ -39,5 +39,5 @@ MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles
 17. Diversity and inclusion
 18. Career development
 19. Success mindset
-20. Positive psychology.
+20. Positive psychology
 
