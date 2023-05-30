@@ -16,7 +16,7 @@ Throughout the book, we will provide practical strategies for developing mindful
 
 Finally, we will conclude this chapter by highlighting the key takeaways from the book and discussing how readers can apply the concepts and strategies presented in their own leadership journeys. Whether you are a current or aspiring female leader, this book will provide you with valuable insights and practical tools for developing mindful leadership skills and thriving in your personal and professional life.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 
