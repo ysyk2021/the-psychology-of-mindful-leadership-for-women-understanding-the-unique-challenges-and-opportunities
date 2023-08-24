@@ -1,5 +1,3 @@
-Managing Negative Thoughts and Emotions During Mindful Leadership
-======================================================================================================================
 
 Mindful leadership can be challenging, especially when negative thoughts and emotions arise. In this section, we will explore strategies for managing negative thoughts and emotions during mindful leadership.
 

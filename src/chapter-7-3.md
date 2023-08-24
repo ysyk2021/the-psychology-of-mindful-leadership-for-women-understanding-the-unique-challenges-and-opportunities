@@ -1,5 +1,3 @@
-Measuring Progress and Success
-=================================================================================
 
 Developing a mindful leadership practice requires ongoing commitment and effort. It is essential to measure progress and success to ensure that your efforts are paying off. Measuring progress and success can also help you identify areas for improvement and adjust your approach as needed.
 

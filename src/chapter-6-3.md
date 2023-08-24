@@ -1,5 +1,3 @@
-Strategies for Staying Motivated in Mindful Leadership
-===========================================================================================================
 
 Practicing mindful leadership can be challenging, especially in the face of competing demands and stressors. In this section, we will explore strategies for overcoming challenges in mindful leadership and staying motivated.
 

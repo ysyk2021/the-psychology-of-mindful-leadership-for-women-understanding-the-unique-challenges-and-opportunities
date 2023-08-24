@@ -1,5 +1,3 @@
-The Importance of Mindful Leadership for Women
-============================================================
 
 Mindful leadership is a critical skill for women in leadership roles. By cultivating self-awareness, emotional intelligence, and compassion, women can become more effective leaders while also experiencing significant personal growth and development.
 

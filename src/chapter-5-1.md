@@ -1,5 +1,3 @@
-Using Mindful Leadership to Overcome Gender Bias and Stereotypes
-========================================================================================================
 
 Despite strides towards gender equality in the workplace, women in leadership still face unique challenges related to gender bias and stereotypes. In this section, we will explore how mindful leadership can help women overcome these challenges and thrive in leadership roles.
 

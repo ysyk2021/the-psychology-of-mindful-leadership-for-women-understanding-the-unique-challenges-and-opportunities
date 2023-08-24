@@ -1,5 +1,3 @@
-Part III: Mindful Leadership Techniques
-=======================================
 
 In this section, we will explore various mindful leadership techniques that women in leadership roles can use to develop greater self-awareness, emotional intelligence, and resilience. We will cover basic and advanced techniques as well as strategies for incorporating mindful leadership into daily life.
 

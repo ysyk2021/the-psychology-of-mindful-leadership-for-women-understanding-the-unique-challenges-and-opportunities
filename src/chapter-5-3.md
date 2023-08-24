@@ -1,5 +1,3 @@
-Using Mindful Leadership to Achieve Work-Life Harmony
-============================================================================================
 
 Achieving work-life harmony can be challenging for women in leadership roles, who may feel pressure to balance the demands of their careers with the needs of their families and personal lives. In this section, we will explore strategies for using mindful leadership to achieve work-life harmony.
 

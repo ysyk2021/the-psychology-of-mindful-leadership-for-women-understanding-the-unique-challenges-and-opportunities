@@ -1,5 +1,3 @@
-What is Mindful Leadership?
-======================================================================
 
 Mindful leadership is a leadership approach that emphasizes self-awareness, emotional intelligence, and compassion. Mindful leaders are present, attentive, and non-judgmental, allowing them to make better decisions, build stronger relationships, and create a more positive workplace culture. In this chapter, we will explore what mindful leadership is and how it differs from traditional leadership approaches.
 

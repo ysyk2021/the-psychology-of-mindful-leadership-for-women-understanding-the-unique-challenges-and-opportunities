@@ -1,5 +1,3 @@
-The Science behind Mindful Leadership
-================================================================================
 
 Mindful leadership is a leadership approach that emphasizes self-awareness, emotional intelligence, and compassion. While mindful leadership has its roots in ancient contemplative practices, it has become increasingly popular in contemporary workplaces due to its proven effectiveness in improving workplace outcomes. In this chapter, we will explore the science behind mindful leadership and how it can benefit individuals and organizations.
 

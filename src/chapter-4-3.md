@@ -1,5 +1,3 @@
-Strategies for Incorporating Mindful Leadership into Daily Life
-========================================================================================================
 
 Incorporating mindful leadership techniques into daily life can help women in leadership roles develop the qualities they need to succeed, including self-awareness, emotional intelligence, and resilience. In this section, we will explore strategies for incorporating mindful leadership into daily life.
 

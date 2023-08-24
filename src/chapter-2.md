@@ -1,5 +1,3 @@
-Part I: Foundations of Mindful Leadership
-=========================================
 
 In this part, we will explore the foundations of mindful leadership, including what it is, the science behind it, and the benefits it can bring for personal growth.
 

@@ -1,5 +1,3 @@
-How This Book Can Help You
-========================================
 
 This book is designed to help women in leadership roles develop greater self-awareness, emotional intelligence, and resilience through mindfulness practices. By exploring the unique challenges and opportunities of women in leadership and the science behind mindful leadership, this book will provide practical strategies for cultivating the qualities you need to succeed and thrive as a leader.
 

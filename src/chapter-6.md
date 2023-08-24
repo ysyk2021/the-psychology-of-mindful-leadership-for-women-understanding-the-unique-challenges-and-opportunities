@@ -1,5 +1,3 @@
-Part V: Overcoming Challenges in Mindful Leadership
-===================================================
 
 While mindful leadership can be a powerful approach for women in leadership roles, it is not without its challenges. In this section, we will explore some of the common challenges that women may face when practicing mindful leadership and offer strategies for overcoming them.
 

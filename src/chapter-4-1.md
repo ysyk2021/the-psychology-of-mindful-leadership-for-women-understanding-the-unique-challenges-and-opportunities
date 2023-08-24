@@ -1,5 +1,3 @@
-Basic Mindful Leadership Techniques
-============================================================================
 
 In this section, we will explore basic mindful leadership techniques that women in leadership roles can use to cultivate greater self-awareness, emotional intelligence, and resilience.
 

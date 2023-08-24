@@ -1,5 +1,3 @@
-Creating a Consistent Practice
-=================================================================================
 
 Developing a consistent mindful leadership practice is essential for women in leadership roles who want to cultivate the qualities they need to succeed, including self-awareness, emotional intelligence, and resilience. In this section, we will explore strategies for developing a consistent mindful leadership practice.
 

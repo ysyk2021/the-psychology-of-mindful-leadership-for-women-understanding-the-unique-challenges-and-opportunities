@@ -1,5 +1,3 @@
-Dealing with Resistance to Mindful Leadership
-==================================================================================================
 
 Resistance to mindful leadership can arise for a variety of reasons, including skepticism about its effectiveness, fear of change, and concerns about time and resource constraints. In this section, we will explore strategies for overcoming resistance to mindful leadership.
 

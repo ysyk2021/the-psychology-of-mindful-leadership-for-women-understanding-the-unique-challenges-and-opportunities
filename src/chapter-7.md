@@ -1,5 +1,3 @@
-Part VI: Developing a Mindful Leadership Practice
-=================================================
 
 Developing a consistent mindful leadership practice is essential for women in leadership roles who want to cultivate greater self-awareness, emotional intelligence, and resilience. In this section, we will explore strategies for creating a consistent practice, finding local resources for support, and measuring progress and success.
 

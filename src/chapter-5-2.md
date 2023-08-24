@@ -1,5 +1,3 @@
-Using Mindful Leadership to Manage Impostor Syndrome
-===========================================================================================
 
 Impostor syndrome is a common experience among women in leadership roles, characterized by feelings of self-doubt, insecurity, and inadequacy despite evidence of competence and success. In this section, we will explore strategies for using mindful leadership to manage impostor syndrome.
 

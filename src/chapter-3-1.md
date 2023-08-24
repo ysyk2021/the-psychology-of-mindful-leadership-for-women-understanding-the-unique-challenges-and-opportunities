@@ -1,5 +1,3 @@
-Gender Bias and Stereotypes
-====================================================================================
 
 As women continue to break barriers and rise to leadership positions, they often face unique challenges that their male counterparts may not experience. Gender bias and stereotypes are two of the most significant challenges that women in leadership face.
 

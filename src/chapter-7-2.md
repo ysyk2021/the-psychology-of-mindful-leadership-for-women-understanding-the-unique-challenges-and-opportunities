@@ -1,5 +1,3 @@
-Finding Local Mindful Leadership Resources
-=============================================================================================
 
 Developing a mindful leadership practice requires ongoing effort and commitment. Fortunately, there are many resources available to support individuals in their journey towards mindful leadership. In this chapter, we will explore some local mindful leadership resources that can help you develop and deepen your practice.
 
