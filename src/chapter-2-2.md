@@ -1,5 +1,4 @@
-Chapter: The Science Behind Mindful Leadership
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the science behind mindful leadership, exploring the research and evidence that supports the effectiveness and benefits of integrating mindfulness into leadership practices. By understanding the scientific foundations of mindful leadership, women leaders can gain confidence in adopting these principles and techniques to enhance their leadership effectiveness.
 

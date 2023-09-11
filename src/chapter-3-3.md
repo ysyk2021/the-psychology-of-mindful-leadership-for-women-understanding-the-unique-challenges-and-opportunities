@@ -1,5 +1,4 @@
-Chapter: Work-Life Balance
-==========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of work-life balance for women in leadership roles. We will discuss the challenges they face, strategies for achieving balance, and how mindfulness can be applied to create a harmonious integration of work and personal life.
 

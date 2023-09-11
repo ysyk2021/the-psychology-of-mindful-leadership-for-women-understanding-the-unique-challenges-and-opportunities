@@ -1,5 +1,4 @@
-Chapter: Basic Mindful Leadership Techniques
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the foundational mindful leadership techniques that can empower women in leadership to navigate their roles with clarity, resilience, and effectiveness.
 

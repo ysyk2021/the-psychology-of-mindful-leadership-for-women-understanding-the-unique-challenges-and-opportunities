@@ -1,5 +1,4 @@
-Chapter: Finding Local Mindful Leadership Resources
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for finding local mindful leadership resources specifically tailored to the unique challenges and opportunities faced by women in leadership positions. We will discuss various avenues to discover relevant resources, including organizations, networks, workshops, and coaching programs.
 

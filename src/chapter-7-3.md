@@ -1,5 +1,4 @@
-Chapter: Measuring Progress and Success
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for measuring progress and success in the context of mindful leadership for women. We will delve into the importance of setting meaningful goals, tracking progress, celebrating achievements, and redefining success to align with personal values and authentic leadership.
 

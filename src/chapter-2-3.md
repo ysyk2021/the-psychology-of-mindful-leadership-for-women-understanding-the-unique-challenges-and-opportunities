@@ -1,5 +1,4 @@
-Chapter: Benefits of Mindful Leadership for Personal Growth
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits of mindful leadership for personal growth. By integrating mindfulness practices and principles into their lives, women leaders can experience transformative growth, enhance self-awareness, and cultivate a deeper sense of well-being and fulfillment.
 

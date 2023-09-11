@@ -1,5 +1,4 @@
-Chapter: Strategies for Staying Motivated in Mindful Leadership
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for staying motivated as women leaders in mindful leadership. We will discuss the unique challenges that women face in leadership roles and how mindfulness can be used to cultivate motivation and resilience.
 

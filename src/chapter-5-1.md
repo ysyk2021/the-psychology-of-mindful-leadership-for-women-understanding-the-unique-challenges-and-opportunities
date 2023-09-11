@@ -1,5 +1,4 @@
-Chapter: Using Mindful Leadership to Overcome Gender Bias and Stereotypes
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how mindful leadership can be utilized as a powerful tool to overcome gender bias and stereotypes faced by women in leadership positions. We will discuss strategies for cultivating self-awareness, promoting inclusivity, challenging biases, and fostering a culture of equality and respect.
 

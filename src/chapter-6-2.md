@@ -1,5 +1,4 @@
-Chapter: Managing Negative Thoughts and Emotions During Mindful Leadership
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for managing negative thoughts and emotions during mindful leadership. We will discuss the unique challenges that women in leadership face and how mindfulness can be used to navigate these challenges effectively.
 

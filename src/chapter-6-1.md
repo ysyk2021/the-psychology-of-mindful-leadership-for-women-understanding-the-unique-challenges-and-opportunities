@@ -1,5 +1,4 @@
-Chapter: Dealing with Resistance to Mindful Leadership
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for dealing with resistance to mindful leadership, particularly focusing on the unique challenges that women face as leaders. We will discuss common sources of resistance and provide tools and techniques to overcome them effectively.
 

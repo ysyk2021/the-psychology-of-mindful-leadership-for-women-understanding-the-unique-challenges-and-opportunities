@@ -1,5 +1,4 @@
-Chapter: What is Mindful Leadership?
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of mindful leadership and its significance for women in leadership roles. We will delve into the definition of mindful leadership, its core principles, and how it can empower women to navigate the unique challenges and opportunities they face as leaders.
 

@@ -1,5 +1,4 @@
-Chapter: Impostor Syndrome
-==========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the concept of impostor syndrome and its impact on women in leadership roles. We will explore the underlying causes, manifestations, and strategies for overcoming impostor syndrome by incorporating mindfulness practices.
 

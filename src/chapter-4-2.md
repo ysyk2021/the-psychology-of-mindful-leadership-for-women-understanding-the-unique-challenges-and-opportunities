@@ -1,5 +1,4 @@
-Chapter: Advanced Mindful Leadership Techniques
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore advanced mindful leadership techniques for women leaders. These techniques build upon the foundation of mindfulness and offer deeper insights and practices to enhance leadership effectiveness, navigate complex challenges, and foster positive change.
 

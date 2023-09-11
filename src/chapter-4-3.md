@@ -1,5 +1,4 @@
-Chapter: Strategies for Incorporating Mindful Leadership into Daily Life
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore practical strategies for women leaders to incorporate mindful leadership principles and practices into their daily lives. By integrating mindfulness into their routines, women can enhance their leadership effectiveness, well-being, and overall success.
 

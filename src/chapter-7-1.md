@@ -1,5 +1,4 @@
-Chapter: Creating a Consistent Practice
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of creating and maintaining a consistent mindfulness practice for women in leadership. We will discuss strategies and practical tips to establish a regular routine that supports personal growth, well-being, and effective leadership.
 

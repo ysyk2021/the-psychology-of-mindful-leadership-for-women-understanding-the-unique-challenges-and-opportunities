@@ -1,5 +1,4 @@
-Chapter: Using Mindful Leadership to Manage Impostor Syndrome
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how mindful leadership can be used to effectively manage impostor syndrome for women in leadership roles. We will discuss the unique challenges women leaders face related to impostor syndrome and provide practical strategies to cultivate self-confidence, resilience, and authenticity.
 

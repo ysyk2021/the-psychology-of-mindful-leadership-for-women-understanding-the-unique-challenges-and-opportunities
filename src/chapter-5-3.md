@@ -1,5 +1,4 @@
-Chapter: Using Mindful Leadership to Achieve Work-Life Harmony
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how mindful leadership can be applied to achieve work-life harmony for women in leadership roles. We will discuss the challenges that women leaders often face in balancing their professional and personal lives, and how mindfulness practices and principles can help create a more integrated and fulfilling approach.
 
